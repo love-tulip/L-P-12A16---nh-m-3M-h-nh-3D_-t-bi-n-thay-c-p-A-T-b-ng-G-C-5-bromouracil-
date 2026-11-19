@@ -1,0 +1,1 @@
+# L-P-12A16---M-h-nh-3D_-t-bi-n-thay-c-p-A-T-b-ng-G-C-5-bromouracil-
